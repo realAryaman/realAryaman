@@ -3,7 +3,8 @@
 # Schooling
 * Cambridge
 * St. John Public School
-* 🔭 I’m currently dealing with physics, Chemistry and Maths.
+* Ex-Aakashian
+* 🔭 I’m currently dealing with physics, Chemistry and Maths at FIITJEE.
 # Reach me at 
 * Instagram: instagram.com/not_.aryaman
 * Phone: 8130787847 
